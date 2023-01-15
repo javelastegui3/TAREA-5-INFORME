@@ -9,6 +9,10 @@
 
 2. MARCO TEÓRICO
 
+[![image.png](https://i.postimg.cc/x1hsjZfw/image.png)](https://postimg.cc/4YvvBBhP)
+
+[![image.png](https://i.postimg.cc/2jtT7JvV/image.png)](https://postimg.cc/rzSS8ffk)
+
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
 
 [![imagen-2023-01-15-164545812.png](https://i.postimg.cc/0jKB8CY5/imagen-2023-01-15-164545812.png)](https://postimg.cc/7JDV90tj)
