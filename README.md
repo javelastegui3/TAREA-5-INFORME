@@ -12,12 +12,19 @@
 3. EXPLICACIÓN Y RESOLUCIÓN DE EJERCICIOS O PROBLEMAS
 
 [![imagen-2023-01-15-164545812.png](https://i.postimg.cc/0jKB8CY5/imagen-2023-01-15-164545812.png)](https://postimg.cc/7JDV90tj)
+
 [![imagen-2023-01-15-164631788.png](https://i.postimg.cc/vZvbFQ8q/imagen-2023-01-15-164631788.png)](https://postimg.cc/mPh07WHC)
+
 [![image.png](https://i.postimg.cc/hjNqbvMj/image.png)](https://postimg.cc/62VSB9kJ)
+
 [![image.png](https://i.postimg.cc/W43RBgHz/image.png)](https://postimg.cc/VJ3HMr1P)
+
 [![image.png](https://i.postimg.cc/gJXCJddP/image.png)](https://postimg.cc/phvGGwp0)
+
 [![image.png](https://i.postimg.cc/vHdJQpNp/image.png)](https://postimg.cc/MXdP5rxD)
+
 [![image.png](https://i.postimg.cc/SK5PH591/image.png)](https://postimg.cc/Mc7tQ9d1)
+
 
 4. VIDEO
 
